@@ -1,2 +1,1 @@
-so last time we are here
-and we can have fun
+we are doing good in way method 2
