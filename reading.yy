@@ -1,1 +1,1 @@
-we are doing good in way method 2
+we are doing good in way method 1
